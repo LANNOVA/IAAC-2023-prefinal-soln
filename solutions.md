@@ -1,0 +1,5 @@
+![image](https://github.com/LANNOVA/IAAC-2023-prefinal-soln/assets/86397282/4506bc3d-51af-4c76-8613-e228f3783bcc)
+![image](https://github.com/LANNOVA/IAAC-2023-prefinal-soln/assets/86397282/9e9c3eae-9e6f-4ed6-99ff-341f10107113)
+![image](https://github.com/LANNOVA/IAAC-2023-prefinal-soln/assets/86397282/eafde5e4-2138-4caa-bb69-d4a7d93002ad)
+![image](https://github.com/LANNOVA/IAAC-2023-prefinal-soln/assets/86397282/ebe08068-b8f7-42cc-b54b-06ea84d1c6fd)
+![image](https://github.com/LANNOVA/IAAC-2023-prefinal-soln/assets/86397282/f51f8ef4-b61f-420a-a667-47ffadb005f2)
